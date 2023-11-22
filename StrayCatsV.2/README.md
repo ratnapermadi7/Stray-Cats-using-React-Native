@@ -1,4 +1,3 @@
 # StrayCats
-Stray Cats is meow meow app
+TA Tentang kucing deh
 
-meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meow meowvmeow meow meow meow meow meow meow meow
